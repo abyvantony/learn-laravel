@@ -2,7 +2,7 @@
 
 **12 lessons** from absolute beginner to ultra-advanced. Published twice daily.
 
-📖 **Currently on:** Level 1 of 12 (cycle 2)
+📖 **Currently on:** Level 1 of 12 (cycle 3)
 
 ## Curriculum
 
